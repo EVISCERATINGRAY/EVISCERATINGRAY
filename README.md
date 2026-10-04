@@ -5,7 +5,7 @@
    <p align="center">
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/c656e84f-869a-4c3f-9b0e-851c4d1bca25" />
 <p align="center">
-   $${\color{blue}DNI:️ Basic️ + Proshipper,️ IRL,️ -16}$$ 
+   $${\color{blue}DNI:️ Basic️ +️ Proshipper,️ IRL,️ -16}$$ 
    <p align="center">
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/c656e84f-869a-4c3f-9b0e-851c4d1bca25" />
          <p align="center">
